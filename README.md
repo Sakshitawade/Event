@@ -22,3 +22,21 @@ Event management is the application of project management to the creation and de
 
 ![image](https://user-images.githubusercontent.com/90552517/134305479-fbc776a7-7efd-4b95-b8ad-14eb4603a9a1.png)
 
+![image](https://user-images.githubusercontent.com/90552517/134305676-387209c7-4eb7-48d1-af67-f4fc6a305b27.png)
+
+![image](https://user-images.githubusercontent.com/90552517/134305704-965c542c-55a1-49ea-9cd3-de929cf125ff.png)
+
+
+![image](https://user-images.githubusercontent.com/90552517/134305752-256268ba-47ab-4c7e-931e-06526e97f025.png)
+
+![image](https://user-images.githubusercontent.com/90552517/134305818-b926c518-8a18-4d15-859e-2eec1b48d7fc.png)
+
+![image](https://user-images.githubusercontent.com/90552517/134305850-2ec3739c-ce9d-4ec6-abd5-14b782f33166.png)
+
+![image](https://user-images.githubusercontent.com/90552517/134305888-93f0b730-38f3-43f0-a7cc-6244a13ffb28.png)
+
+
+![image](https://user-images.githubusercontent.com/90552517/134305918-2fbca3e7-eff1-48c5-8625-331125dfeb14.png)
+
+
+
