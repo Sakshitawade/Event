@@ -1,5 +1,5 @@
 # Event
-**Introduction****:-**
+**Introduction**
 
 
 Events create opportunities for people to connect with an area, spend time together,
